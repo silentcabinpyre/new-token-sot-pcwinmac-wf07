@@ -1,4 +1,4 @@
-# 
+# Nuevo new token sniper bot plugins para Mac OS | Personalizado new token sniper bot plugins para PC Windows. Con verificación de contrato y manejo de revert — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
